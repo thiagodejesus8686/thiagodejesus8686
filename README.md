@@ -1,4 +1,4 @@
-### Olá pessoal! Eu sou o Thiago de Jesus - NXS Founder😄🚀 
+### Olá pessoal! Eu sou o Thiago de Jesus - desenvolvedor web 😄🚀 
 
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/thiagojesus86/)
