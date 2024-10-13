@@ -19,6 +19,6 @@
   </div>
 <br/>
 
-🔴 Aprendendo programação desde os 12 anos de idade!
+🔴 Meergulhado nesse mundo há 5 anos!
 <br><br>
 <b>Venha aprender um pouco mais sobre esse mundo fantástico da tecnologia junto comigo</b> 🚀
